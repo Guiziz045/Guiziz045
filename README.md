@@ -1,16 +1,21 @@
-### Hi there 👋
+### Bem-vindo ao meu perfil
 
-<!--
-**Guiziz045/Guiziz045** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Oi pessoal, tudo bem?**
+Prazer em conhecê-lo, eu sou Guilherme Vinícius
 
-Here are some ideas to get you started:
+**_Então... vou falar um pouquinho de mim._**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Eu gosto de jogar futzin
+- Gosto de conhecer novas pessoas
+- Eu gosto de sair
+- Eu gosto de jogar online (CS-GO,ROBLOX,ETC)
+- Eu gosto de vir ver minha namorada
+- Eu gosto de ouvir música (Veigh, Mc Ryan, Kayblack, etc) 
+
+
+**Se precisar de ajuda é só ligar para este contato:**
+ - Instagram: _guizin_045
+ - E-mail: guivinicius579@gmail.com 
+
+![beleza](https://media.tenor.com/cHSkjU_sqNcAAAAj/siiii.gif)
+
