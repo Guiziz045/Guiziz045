@@ -13,7 +13,7 @@ Prazer em conhecê-lo, eu sou Guilherme Vinícius
 - Eu gosto de ouvir música (Veigh, Mc Ryan, Kayblack, etc) 
 
 
-**Se precisar de ajuda é só ligar para este contato:**
+**Se precisar de ajuda é só chamarpara este contato:**
  - Instagram: _guizin_045
  - E-mail: guivinicius579@gmail.com 
 
